@@ -62,4 +62,4 @@ If you build something interesting on top of this, I would love to hear about it
 
 ## Contact
 
-[LinkedIn handle]
+https://www.linkedin.com/in/marianogomezbent/ 
